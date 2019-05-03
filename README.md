@@ -1,1 +1,1 @@
-# bowInspect.github.io
+# ItzVerticlez.github.io
